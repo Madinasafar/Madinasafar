@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on projects to practice more
-- 📫 How to reach me on @Madina_safar(telegram), madinasafar(Twitter)
+- 📫 How to reach me on @Madina_Safar(telegram), madinasafar(X)
 - 😄 Pronouns: elle
 - ⚡ Fun fact: new to Programming
 
